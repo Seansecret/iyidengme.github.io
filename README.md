@@ -8,6 +8,6 @@
 
 ### 与我取得联系
 
-[**请添加我的TG**](https://t.me/iyidengMe)
+[**请添加我的TG**](https://t.me/iyidengME)
 
 爱我中华，强我中华，吾辈当自强！
